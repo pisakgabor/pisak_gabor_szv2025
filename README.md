@@ -1,0 +1,1 @@
+# pisak_gabor_szv2025
